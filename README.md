@@ -14,10 +14,8 @@
 
 
 
-
-
+ 
+                                                " First you learn, then you remove the 'L'. "
                                                                                 
-                                                                                " First you learn, then you remove the 'L'. "
-                                                                                
-                                                                                                                     -Zedlys
+                                                                                    -Zedlys
 -->
