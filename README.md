@@ -12,10 +12,4 @@
 - 📫 E-mail: Rafaslidy@gmail.com
 
 
-
-
- 
-                                                " First you learn, then you remove the 'L'. "
-                                                                                
-                                                                                    -Zedlys
 -->
